@@ -1,4 +1,4 @@
-### US States Quiz
+### USA States Quiz
 
 Can you name all of the states of the USA? Find out!
 
